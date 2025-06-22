@@ -111,7 +111,7 @@ Explore the analytics dashboard for:
 
 
 
-Need more help or want to say hi 👋? Feel free 😊 to reach out to me at my [gmail](baophuc247@gmail.com) or [linkedin](https://www.linkedin.com/in/danieltrn/) 
+Need more help or want to say hi 👋? Feel free 😊 to reach out to me at my [linkedin](https://www.linkedin.com/in/danieltrn/) or via gmail: baophuc247@gmail.com  
 
 
 
